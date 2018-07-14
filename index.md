@@ -158,4 +158,4 @@ The more people you can teach to cook your meal reliably, the better.
 
 Points:  Widely available ingredients.  Great technique with cheap equipment.  Time management.  Creative misuse of tools.  Sharing online.  Mistakes.  Failed experiments.
 
-No Points:  One-off ingredient bargains.  Specialty ingredients.  Relying on particular kit.  French jargon.  Production value.
+No Points:  One-off bargains.  Specialty ingredients.  Relying on particular kit.  French jargon.  Production value.
