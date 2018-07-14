@@ -118,6 +118,8 @@ flat, stable surface for the cutting board
 
 a drain that goes someplace responsible
 
+unexpired fire extinguisher
+
 ## <a id=cash>Cash</a>
 
 Choose a budget:
