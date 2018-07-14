@@ -1,0 +1,2 @@
+#!/bin/sh
+scp index.html kyle@misenplace.com:/var/www/miseenbag.com/
