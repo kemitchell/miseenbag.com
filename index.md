@@ -150,7 +150,7 @@ _Pious_:  Cook a meal that is Halal, Kosher, Vegan, and delicious.
 
 _Royale_:  Cook a meal on the menu at the fanciest local restaurant in your area.
 
-_Zero_:  Cook a meal with no leftover ingredients.
+_Zero_:  Cook a meal with no leftover ingredients or food scraps.
 
 ## <a id=cache>Cachet</a>
 
