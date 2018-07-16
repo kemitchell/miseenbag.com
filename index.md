@@ -78,7 +78,7 @@ recycling bag
 
 food scraps bag
 
-cooler bag or tote
+hot/cold insulated bag or tote
 
 cigarette lighter or matches
 
