@@ -78,7 +78,7 @@ recycling bag
 
 food scraps bag
 
-hot/cold insulated bag or tote
+hot/cold insulated bag or tote that can fit the sauce pan
 
 cigarette lighter or matches
 
