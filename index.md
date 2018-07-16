@@ -28,7 +28,7 @@ ten inch carbon steel frying pan, preferably preseasoned, like a [Lodge](https:/
 
 single-burner butane, propane, or multi-fuel stove, like a [Coleman](https://www.coleman.com/butane-stove/2000020951.html), $25
 
-four-quart, all-aluminum sauce pan + lid, $20
+four-quart, all-aluminum saucepan + lid, $20
 
 two two-quart food containers + lids, like [Camsquares](https://www.cambro.com/Products/Food_Storage/Square_Food_Storage_Containers/10737420118/1033.aspx), $20
 
@@ -78,7 +78,7 @@ recycling bag
 
 food scraps bag
 
-hot/cold insulated bag or tote that can fit the sauce pan
+hot/cold insulated bag or tote that can fit the saucepan
 
 cigarette lighter or matches
 
