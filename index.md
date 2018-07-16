@@ -42,7 +42,7 @@ spatula, preferably silicone, or wood
 
 stirring spoon
 
-chopsticks
+cooking chopsticks, long, wood
 
 spider
 
