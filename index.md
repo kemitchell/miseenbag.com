@@ -88,7 +88,7 @@ For each meal, you get:
 
 one canister of stove fuel
 
-&infin; kosher salt
+&infin; salt, preferably Diamond Crystal kosher
 
 &infin; black pepper
 
