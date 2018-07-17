@@ -10,7 +10,7 @@ Escape!
 
 [Limit your cash.](#cash)
 
-[Cook](#challenge).  Feed people.
+[Cook](#challenges).  Feed people.
 
 ## <a id=kit>Kit</a>
 
