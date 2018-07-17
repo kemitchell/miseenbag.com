@@ -46,7 +46,7 @@ cooking chopsticks, long, wood
 
 spider
 
-bench scraper
+bench scraper, plastic
 
 four medium ingredient bowls
 
