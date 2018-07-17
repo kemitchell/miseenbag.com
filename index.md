@@ -90,7 +90,7 @@ one canister of stove fuel
 
 &infin; salt, preferably Diamond Crystal kosher
 
-&infin; black pepper
+&infin; black pepper, preferably fresh-ground
 
 &infin; lukewarm tap water
 
