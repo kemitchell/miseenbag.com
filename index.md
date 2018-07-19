@@ -80,7 +80,7 @@ recycling bag
 
 food scraps bag
 
-hot/cold insulated bag or tote that can fit the saucepan
+hot/cold insulated bag, fits the saucepan
 
 cigarette lighter or matches
 
