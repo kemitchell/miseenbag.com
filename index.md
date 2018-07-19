@@ -28,7 +28,7 @@ eight- or ten-inch chef knife, like a [Fibrox](https://www.swissarmy.com/us/en/P
 
 ten inch carbon steel frying pan, smooth inner surface, like an [MB](http://www.matferbourgeatusa.com/black-steel-round-frying-pan-10), $30
 
-single-burner butane, propane, or multi-fuel stove, like a [Coleman](https://www.coleman.com/butane-stove/2000020951.html), $25
+single-burner butane, propane, or multi-fuel stove, like a [Coleman](https://www.coleman.com/butane-stove/2000020951.html), $20
 
 four-quart-ish, all-aluminum saucepan + lid, preferably straight-sided, like a [Winware](http://www.wincous.com/product-category/kitchen/professional-cookware/aluminum-cookware/aluminum-sauce-pans/), $20
 
