@@ -24,7 +24,7 @@ Stuff it all in a cheap backpack.  The ugliest one you can find.  Respect your t
 
 eight- or ten-inch chef knife, like a [Fibrox](https://www.swissarmy.com/us/en/Products/Cutlery/Chefs-Knives/Fibrox-Pro-8-Inch-Chefs-Knife/p/5.2063.20), $45
 
-ten inch carbon steel frying pan, like an [MB](http://www.matferbourgeatusa.com/black-steel-round-frying-pan-10), $30
+ten inch carbon steel frying pan, smooth inner surface, like an [MB](http://www.matferbourgeatusa.com/black-steel-round-frying-pan-10), $30
 
 single-burner butane, propane, or multi-fuel stove, like a [Coleman](https://www.coleman.com/butane-stove/2000020951.html), $25
 
