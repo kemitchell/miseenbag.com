@@ -12,7 +12,7 @@ Escape!
 
 [Cook](#challenges).  Feed people.
 
-[Before Internet famous.](#cachet)  Or not.
+[Become Internet famous.](#cachet)  Or not.
 
 ## <a id=kit>Kit</a>
 
