@@ -152,7 +152,7 @@ _Royale_:  Cook a meal on the menu at the fanciest local restaurant in your area
 
 _Zero_:  Cook a meal with no leftover ingredients or food scraps.
 
-## <a id=cache>Cachet</a>
+## <a id=cachet>Cachet</a>
 
 The more people you can teach to cook your meal reliably, the better.
 
