@@ -18,7 +18,7 @@ Escape!
 
 This is your equipment.  Nothing more, and more than enough.
 
-In general, buy the cheapest one that works.  Try for used, or repair something broken.  When in doubt, commercial, not consumer.  Scrounge.
+In general, buy the cheapest one that works.  Try for used, or repair something broken.  When in doubt, commercial, not consumer.  _Scrounge._
 
 Stuff it all in a cheap backpack.  The ugliest one you can find.  Respect your tools, but do not love them.
 
