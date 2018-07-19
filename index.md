@@ -12,6 +12,8 @@ Escape!
 
 [Cook](#challenges).  Feed people.
 
+[Before Internet famous.](#cachet)  Or not.
+
 ## <a id=kit>Kit</a>
 
 This is your equipment.  Nothing more, and more than enough.
