@@ -82,8 +82,6 @@ food scraps bag
 
 hot/cold insulated bag, fits the saucepan
 
-cigarette lighter or matches
-
 ## <a id=freebies>Freebies</a>
 
 For each meal, you get:
