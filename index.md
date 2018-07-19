@@ -46,7 +46,7 @@ stirring spoon
 
 cooking chopsticks, long, wood
 
-spider
+spider, number six
 
 bench scraper, plastic
 
