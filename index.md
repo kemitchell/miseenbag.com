@@ -28,7 +28,7 @@ ten inch carbon steel frying pan, like an [MB](http://www.matferbourgeatusa.com/
 
 single-burner butane, propane, or multi-fuel stove, like a [Coleman](https://www.coleman.com/butane-stove/2000020951.html), $25
 
-four-quart-ish, all-aluminum saucepan + lid, preferably straight-sided, $20
+four-quart-ish, all-aluminum saucepan + lid, preferably straight-sided, like a [Winware](http://www.wincous.com/product-category/kitchen/professional-cookware/aluminum-cookware/aluminum-sauce-pans/), $20
 
 two two-quart food containers + lids, like [Camsquares](https://www.cambro.com/Products/Food_Storage/Square_Food_Storage_Containers/10737420118/1033.aspx), $20
 
