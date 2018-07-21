@@ -16,6 +16,8 @@ Escape!
 
 ## <a id=kit>Kit</a>
 
+![photo of the kit laid out on a table](photo.jpg)
+
 This is your equipment.  Nothing more, and more than enough.
 
 In general, buy the cheapest one that works.  Try for used, or repair something broken.  When in doubt, commercial, not consumer.  _Scrounge._

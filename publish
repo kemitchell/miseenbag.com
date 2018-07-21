@@ -1,4 +1,4 @@
 #!/bin/sh
 set -e
 make
-scp index.html kyle@kemitchell.com:/var/www/miseenbag.com/
+scp index.html *.jpg kyle@kemitchell.com:/var/www/miseenbag.com/
