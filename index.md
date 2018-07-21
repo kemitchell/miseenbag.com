@@ -18,6 +18,8 @@ Escape!
 
 ![photo of the kit laid out on a table](photo.jpg)
 
+[Watch an overview on YouTube.](https://youtu.be/4xuPsyTRQEw)
+
 This is your equipment.  Nothing more, and more than enough.
 
 In general, buy the cheapest one that works.  Try for used, or repair something broken.  When in doubt, commercial, not consumer.  _Scrounge._
