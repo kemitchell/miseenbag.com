@@ -52,7 +52,7 @@ cooking chopsticks, long, wood
 
 spider, number six
 
-bench scraper, plastic
+scraper, plastic
 
 four medium ingredient bowls
 
