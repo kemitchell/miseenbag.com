@@ -46,6 +46,8 @@ two two-quart food containers + lids, like [Camsquares](https://www.cambro.com/P
 
 ### Miscellany
 
+hot/cold insulated bag, fits the saucepan
+
 cutting board, preferably poly
 
 paring knife, cheap
@@ -89,8 +91,6 @@ dish sponge, for dishes
 recycling bag
 
 food scraps bag
-
-hot/cold insulated bag, fits the saucepan
 
 ## <a id=freebies>Freebies</a>
 
