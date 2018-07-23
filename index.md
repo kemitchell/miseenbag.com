@@ -20,11 +20,11 @@ Escape!
 
 [Watch a slightly dated overview on YouTube.](https://youtu.be/4xuPsyTRQEw)
 
-This is your equipment.  Nothing more, and more than enough.
+Nothing more.  More than enough.
 
-In general, buy the cheapest one that works.  Try for used, or repair something broken.  When in doubt, commercial, not consumer.  _Scrounge._
+In general, buy the cheapest one that works.  Try for used, or repair something broken.  When in doubt, commercial, not consumer, restaurant supply, not big-box store.  _Scrounge._
 
-Stuff it all in a cheap backpack.  The ugliest one you can find.  Respect your tools, but do not love them.
+Stuff it all in a cheap backpack.  Respect your tools, but don't love them.
 
 ### Big-Ticket
 
