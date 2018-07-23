@@ -68,7 +68,7 @@ four small ingredient bowls
 
 accurate two-cup measuring cup, glass
 
-set of accurate measuring spoons
+accurate measuring spoons
 
 timer that counts up and down
 
