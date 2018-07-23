@@ -54,7 +54,7 @@ paring knife, cheap
 
 spatula, preferably silicone, or wood
 
-stirring spoon
+stirring spoon, preferably wood
 
 cooking chopsticks, long, wood
 
