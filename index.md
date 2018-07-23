@@ -82,9 +82,9 @@ can opener
 
 bottle opener
 
-cleaning brush
+cleaning brush, for ingredients
 
-dish sponge
+dish sponge, for dishes
 
 recycling bag
 
