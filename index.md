@@ -42,9 +42,9 @@ three-to-four-quart-ish, all-aluminum saucepan + lid, preferably straight-sided,
 
 two two-quart food containers + lids, like [Camsquares](https://www.cambro.com/Products/Food_Storage/Square_Food_Storage_Containers/10737420118/1033.aspx), $20
 
-cutting board, preferably poly, that fits in the backpack, $6
-
 ### Miscellany
+
+cutting board, preferably poly
 
 paring knife, cheap
 
