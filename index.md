@@ -34,7 +34,7 @@ ten inch carbon steel frying pan, smooth inner surface, like an [Matfer](http://
 
 _Don't use a wider pan.  You'll deflect heat toward your stove's butane can.  That's unsafe._
 
-single-burner butane stove, like a [Coleman](https://www.coleman.com/butane-stove/2000020951.html), $20
+single-burner butane stove, like a [Coleman](https://www.coleman.com/butane-stove/2000020951.html), Max Burton, or [Iwatani](http://www.iwatani.com/cp/stoves/index.html), $20
 
 _But a new stove that meets the latest safety standards.  Read the instructions. Follow them._
 
