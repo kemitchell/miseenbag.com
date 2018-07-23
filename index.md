@@ -18,7 +18,7 @@ Escape!
 
 ![photo of the kit laid out on a table](photo.jpg)
 
-[Watch an overview on YouTube.](https://youtu.be/4xuPsyTRQEw)
+[Watch a slightly dated overview on YouTube.](https://youtu.be/4xuPsyTRQEw)
 
 This is your equipment.  Nothing more, and more than enough.
 
