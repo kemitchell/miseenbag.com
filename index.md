@@ -30,7 +30,7 @@ Stuff it all in a cheap backpack.  The ugliest one you can find.  Respect your t
 
 eight-inch chef knife, like a [Fibrox](https://www.swissarmy.com/us/en/Products/Cutlery/Chefs-Knives/Fibrox-Pro-8-Inch-Chefs-Knife/p/5.2063.20), $35
 
-ten inch carbon steel frying pan, smooth inner surface, like an [MB](http://www.matferbourgeatusa.com/black-steel-round-frying-pan-10), [De Buyer](https://www.debuyer.com/en/products/mineral-b-element-0), or a [Vollrath](http://vollrath.com/Carbon-Steel-Fry-Pans-1125.htm), $30
+ten inch carbon steel frying pan, smooth inner surface, like an [Matfer](http://www.matferbourgeatusa.com/black-steel-round-frying-pan-10), [De Buyer](https://www.debuyer.com/en/products/mineral-b-element-0), or [Vollrath](http://vollrath.com/Carbon-Steel-Fry-Pans-1125.htm), $30
 
 _Don't use a wider pan.  You'll deflect heat toward your stove's butane can.  That's unsafe._
 
