@@ -32,7 +32,11 @@ eight- or ten-inch chef knife, like a [Fibrox](https://www.swissarmy.com/us/en/P
 
 ten inch carbon steel frying pan, smooth inner surface, like an [MB](http://www.matferbourgeatusa.com/black-steel-round-frying-pan-10), [De Buyer](https://www.debuyer.com/en/products/mineral-b-element-0), or a [Vollrath](http://vollrath.com/Carbon-Steel-Fry-Pans-1125.htm), $30
 
+_Don't use a wider pan.  You'll deflect heat toward your stove's butane can.  That's unsafe._
+
 single-burner butane, propane, or multi-fuel stove, like a [Coleman](https://www.coleman.com/butane-stove/2000020951.html), $20
+
+_But a new stove that meets the latest safety standards.  Read the instructions. Follow them._
 
 four-quart-ish, all-aluminum saucepan + lid, preferably straight-sided, like a [Winware](http://www.wincous.com/product-category/kitchen/professional-cookware/aluminum-cookware/aluminum-sauce-pans/), $20
 
