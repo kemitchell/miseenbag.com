@@ -56,8 +56,6 @@ spatula, preferably silicone, or wood
 
 stirring spoon, preferably wood
 
-cooking chopsticks, long, wood
-
 spider, number six
 
 scraper, plastic
