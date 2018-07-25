@@ -38,9 +38,7 @@ single-burner butane stove, like a [Coleman](https://www.coleman.com/butane-stov
 
 _But a new stove that meets the latest safety standards.  Read the instructions. Follow them._
 
-three-to-four-quart-ish, all-aluminum saucepan + lid, preferably straight-sided, like a [Winware](http://www.wincous.com/product-category/kitchen/professional-cookware/aluminum-cookware/aluminum-sauce-pans/), $20
-
-_No coating or heating disc on the bottom._
+three-to-four-quart saucepan + lid, straight-sided, stainless steel with an aluminum sandwich disc, $20
 
 two two-quart food containers + lids, like [Camsquares](https://www.cambro.com/Products/Food_Storage/Square_Food_Storage_Containers/10737420118/1033.aspx), $20
 
