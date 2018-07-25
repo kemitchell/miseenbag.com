@@ -36,7 +36,7 @@ _Don't use a wider pan.  You'll deflect heat toward your stove's butane can.  Th
 
 single-burner butane stove, like a [Coleman](https://www.coleman.com/butane-stove/2000020951.html), Max Burton, or [Iwatani](http://www.iwatani.com/cp/stoves/index.html), $20
 
-_But a new stove that meets the latest safety standards.  Read the instructions. Follow them._
+_Buy a new stove that meets the latest safety standards.  Read the instructions. Follow them._
 
 three-to-four-quart saucepan + lid, straight-sided, stainless steel with an aluminum sandwich disc, $20
 
