@@ -42,6 +42,8 @@ three-to-four-quart saucepan + lid, straight-sided, stainless steel with an alum
 
 two two-quart food containers + lids, like [Camsquares](https://www.cambro.com/Products/Food_Storage/Square_Food_Storage_Containers/10737420118/1033.aspx), $20
 
+unexpired ABC-rated fire extinguisher, $20
+
 ### Miscellany
 
 hot/cold insulated bag, fits the saucepan
@@ -123,8 +125,6 @@ flat, stable surface for the burner
 flat, stable surface for the cutting board
 
 a drain that goes someplace responsible
-
-unexpired fire extinguisher
 
 ## <a id=cash>Cash</a>
 
