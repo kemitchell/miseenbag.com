@@ -26,7 +26,7 @@ Stuff it all in a cheap backpack.  Respect your tools, but don't love them.
 
 ### Big-Ticket
 
-eight-inch chef knife, like a [Fibrox](https://www.swissarmy.com/us/en/Products/Cutlery/Chefs-Knives/Fibrox-Pro-8-Inch-Chefs-Knife/p/5.2063.20), $35
+number 2 or 3 Chinese cleaver-style slicing knife, $15
 
 ten inch carbon steel frying pan, smooth inner surface, like a [Winco](http://www.wincous.com/product/french-style-fry-pan-polished-carbon-steel-spain/), $20
 
