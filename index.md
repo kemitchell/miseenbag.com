@@ -18,8 +18,6 @@ Escape!
 
 ![photo of the kit laid out on a table](photo.jpg)
 
-[Watch a slightly dated overview on YouTube.](https://youtu.be/4xuPsyTRQEw)
-
 Nothing more.  More than enough.
 
 In general, buy the cheapest one that works.  Try for used, or repair something broken.  When in doubt, commercial, not consumer, restaurant supply, not big-box store.  _Scrounge._
